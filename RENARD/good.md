@@ -1,0 +1,1 @@
+J'ai bien aimé le format avec GitUb. Déjà parce que il y avait pas mal d'exo qui permettait d'avancer de manière autonome et c'était dans la globalité plutôt bien expliqué!

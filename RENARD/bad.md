@@ -1,0 +1,1 @@
+Les explications sur Jenckins, la notation de vendredi. Avec plus d'explication de base sur le fichier calc je pense que ça serait bien passé, mais là c'était compliqué!
