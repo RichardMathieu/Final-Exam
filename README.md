@@ -1,4 +1,4 @@
-# Final-Exam
+# Final-Exam Axel Renard Mathieu Richard
 
 Cet Exam final durera 1h30, et sera par groupe de 2.
 
